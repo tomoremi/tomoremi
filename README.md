@@ -1,7 +1,7 @@
 ## hello!! read to know more if you're curious about little old me!
 <p align="center"><img width="200" height="281" alt="image" src="https://github.com/user-attachments/assets/f3a30d7d-06ff-4877-bfc1-0d55cc4bc470" />
 
-<p align="center"><img width="100" height="281" alt="image" src="https://media.tenor.com/ArlP7Xq2T5UAAAAM/delicious-in-dungeon-dungeon-meshi.gif" /> <img width="100" height="281" alt="image" src="https://github.com/user-attachments/assets/c8e0786e-a50d-46db-8c44-7363eba1d0eb" /> <img width="103" height="281" alt="image" src="https://github.com/user-attachments/assets/29a55667-d1f4-4d63-bdf5-c1b0e662e62d" /> <img width="100" height="281" alt="image" src="https://github.com/user-attachments/assets/f23b4430-7300-4a1f-b593-bea8f8c42343" /> 
+<p align="center"><img width="100" height="430" alt="image" src="https://github.com/user-attachments/assets/d7f17e17-6180-4aee-9276-b4042e504c5d" /> <img width="100" height="384" alt="image" src="https://github.com/user-attachments/assets/2bcb9b24-59f6-4691-91ea-d79093d174b6" />
 
 
 

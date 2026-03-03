@@ -5,3 +5,5 @@
 **MILGRAM** (08 my daughter), BanG Dream (specifically MyGo), Cosmic Princess Kaguya, Delicious In Dungeon, Dandys World, D4DJ ++ more, but i cant list them all here :-)
   
 _(i also really like reading yuri)_
+
+<p align="center">I may be a bit awkward at times if you're someone i've just met, but i will try my best to converse with you. i do not have a DNI, i will block freely-- just dont be weird and you'll be fine

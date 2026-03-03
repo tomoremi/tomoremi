@@ -1,7 +1,7 @@
 ## hello!! read to know more if you're curious about little old me!
-<p align="center"><img width="200" height="281" alt="image" src="https://github.com/user-attachments/assets/f3a30d7d-06ff-4877-bfc1-0d55cc4bc470" />
 
-<p align="center"><img width="100" height="430" alt="image" src="https://github.com/user-attachments/assets/d7f17e17-6180-4aee-9276-b4042e504c5d" /> <img width="100" height="384" alt="image" src="https://github.com/user-attachments/assets/2bcb9b24-59f6-4691-91ea-d79093d174b6" />
+<p align="center"><img width="100" height="430" alt="image" src="https://github.com/user-attachments/assets/d7f17e17-6180-4aee-9276-b4042e504c5d" /> <img width="100" height="384" alt="image" src="https://github.com/user-attachments/assets/baa1b6d9-b02e-4937-8335-8ffbb821055c" /> <img width="100" height="384" alt="image" src="https://github.com/user-attachments/assets/4891e5f6-61e4-432d-94da-5d6b3eeb5666" />
+
 
 
 

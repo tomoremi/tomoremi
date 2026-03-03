@@ -1,5 +1,6 @@
 ## hello!! read to know more if you're curious about little old me
-![](https://media.tenor.com/ArlP7Xq2T5UAAAAM/delicious-in-dungeon-dungeon-meshi.gif) ![image](https://github.com/user-attachments/assets/c9bb8f32-f42f-4c4a-af76-f5a463a21038)
+ <img width="170" height="281" alt="image" src="https://media.tenor.com/ArlP7Xq2T5UAAAAM/delicious-in-dungeon-dungeon-meshi.gif" /> <img width="170" height="281" alt="image" src="https://github.com/user-attachments/assets/c8e0786e-a50d-46db-8c44-7363eba1d0eb" /> <img width="170" height="281" alt="image" src="https://github.com/user-attachments/assets/29a55667-d1f4-4d63-bdf5-c1b0e662e62d" /> <img width="170" height="281" alt="image" src="https://github.com/user-attachments/assets/f23b4430-7300-4a1f-b593-bea8f8c42343" /> 
+
 
 
 <!--

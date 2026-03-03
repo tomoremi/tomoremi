@@ -6,4 +6,5 @@
   
 _(i also really like reading yuri)_
 
-<p align="center">I may be a bit awkward at times if you're someone i've just met, but i will try my best to converse with you. i do not have a DNI, i will block freely-- just dont be weird and you'll be fine
+
+<p align="center">I may be a bit awkward at times if you're someone i've just met, but i will try my best to converse with you. i do not have a DNI, i will block freely-- just dont be weird, be a decent person and you'll be fine

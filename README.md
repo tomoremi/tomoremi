@@ -1,23 +1,7 @@
 ## hello!! read to know more if you're curious about little old me!
-
-<p align="center"><img width="230" height="30" alt="image" src="https://github.com/user-attachments/assets/e9190a16-61e9-4229-aabf-555d9dfe4813" /><img width="230" height="30" alt="image" src="https://github.com/user-attachments/assets/e9190a16-61e9-4229-aabf-555d9dfe4813" />
 <p align="center"><img width="100" height="430" alt="image" src="https://github.com/user-attachments/assets/d7f17e17-6180-4aee-9276-b4042e504c5d" /> <img width="100" height="384" alt="image" src="https://github.com/user-attachments/assets/1b4331f5-71de-4888-845e-b431ab6f9793" /> <img width="100" height="384" alt="image" src="https://github.com/user-attachments/assets/4891e5f6-61e4-432d-94da-5d6b3eeb5666" /> <img width="90" height="384" alt="image" src="https://github.com/user-attachments/assets/1eccaa7a-11bb-4d26-9a18-646d28d8dea5" />
-<p align="center"><img width="230" height="30" alt="image" src="https://github.com/user-attachments/assets/e9190a16-61e9-4229-aabf-555d9dfe4813" /><img width="230" height="30" alt="image" src="https://github.com/user-attachments/assets/e9190a16-61e9-4229-aabf-555d9dfe4813" />
-
->remiel/seraphi -- she/her, xe/xem, it/its (dont use masc terms on me, please)
-
-
-<!--
-**tomoremi/tomoremi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">I am into many things, such as:
+  
+**MILGRAM** (08 my daughter), BanG Dream (specifically MyGo), Cosmic Princess Kaguya, Delicious In Dungeon, Dandys World, D4DJ ++ more, but i cant list them all here :-)
+  
+_(i also really like reading yuri)_

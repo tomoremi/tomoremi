@@ -1,4 +1,6 @@
-## Hi there 👋
+## hello!! read to know more if you're curious about little old me
+![](https://media.tenor.com/ArlP7Xq2T5UAAAAM/delicious-in-dungeon-dungeon-meshi.gif) ![image](https://github.com/user-attachments/assets/c9bb8f32-f42f-4c4a-af76-f5a463a21038)
+
 
 <!--
 **tomoremi/tomoremi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -11,4 +11,4 @@
 **_(i also really like reading yuri)_**
 
 
-<p align="center">I may be a bit awkward at times if you're someone i've just met, but i will try my best to converse with you, even if im a little dry :'-). i do not have a proper DNI list-- just dont be weird, be a decent person and you'll be fine. (note that i block freely) If we're close enough, i'll consider giving you my socials
+<p align="center">I may be a bit awkward at times if you're someone i've just met, but i will try my best to converse with you, even if im a little dry :'-). i do not have a proper DNI list-- just dont be weird, be a decent person and you'll be fine. (note that i block freely) If we get along well, i'll consider giving you my socials

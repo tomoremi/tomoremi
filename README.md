@@ -8,7 +8,7 @@
 
 <p align="center">I am into many things, such as:
   
-**MILGRAM** (08 my daughter) <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/996ac87c-df77-4a9d-91b1-ff44850ce88b" />, BanG Dream (specifically **MyGo**) <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/996ac87c-df77-4a9d-91b1-ff44850ce88b" />, Cosmic Princess Kaguya, Delicious In Dungeon, Dandys World, D4DJ, DDLC ++ more, but i cant list them all here :-)
+**MILGRAM** (08 my daughter) <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/996ac87c-df77-4a9d-91b1-ff44850ce88b" />, BanG Dream (specifically **MyGo**) <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/996ac87c-df77-4a9d-91b1-ff44850ce88b" />, Cosmic Princess Kaguya, Delicious In Dungeon, Dandys World, D4DJ, DDLC, SEWH ++ more, but i cant list them all here :-)
   
 **_(i also really like reading yuri)_**
 

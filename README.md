@@ -25,7 +25,7 @@
 <p align="center"><img width="630" height="30" alt="image" src="https://github.com/user-attachments/assets/44830060-8ae7-4510-9003-67e8574b86b4" />
 
 <img width="1000" height="4" alt="image" src="https://github.com/user-attachments/assets/e205af88-9fb8-4647-9869-a7ab07dca991" />
-
+<p align="center"> https://remrums.straw.page <-- send me stuff here!
 <p align="center"><img width="400" height="64" alt="image" src="https://github.com/user-attachments/assets/c81399d5-fb94-49d7-b1da-c6c91dd68471" /> <img width="400" height="200" alt="image" src="https://github.com/user-attachments/assets/1fb1dd97-e936-4ef4-86dd-a5b3c80930a8" />
 
 <p align="center"> <img width="190" height="138" alt="image" src="https://github.com/user-attachments/assets/cac167f1-bc0b-430a-8bc6-ffffa45d4664" /> <img width="200" height="500" alt="image" src="https://github.com/user-attachments/assets/e18c4be7-d200-4ea5-9c93-bf976028cc2d" />

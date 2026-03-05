@@ -28,7 +28,7 @@
 <p align="center"> https://remrums.straw.page <-- send me stuff here!
 <p align="center"><img width="400" height="64" alt="image" src="https://github.com/user-attachments/assets/c81399d5-fb94-49d7-b1da-c6c91dd68471" /> <img width="400" height="200" alt="image" src="https://github.com/user-attachments/assets/1fb1dd97-e936-4ef4-86dd-a5b3c80930a8" />
 
-<p align="center"> <img width="190" height="138" alt="image" src="https://github.com/user-attachments/assets/cac167f1-bc0b-430a-8bc6-ffffa45d4664" /> <img width="200" height="500" alt="image" src="https://github.com/user-attachments/assets/e18c4be7-d200-4ea5-9c93-bf976028cc2d" />
+<p align="center"> <img width="190" height="138" alt="image" src="https://github.com/user-attachments/assets/ed18cb4e-6e07-433f-89dc-c98bea52b59c" /> <img width="200" height="500" alt="image" src="https://github.com/user-attachments/assets/96df69eb-938a-4bb0-a7d7-d22e8ef0f7ff" />
   
 <p align="center"> <img width="400" height="200" alt="image" src="https://github.com/user-attachments/assets/160bb8d2-385f-4175-a53c-7ebdb5caf997" />
 <img width="400" height="64" alt="image" src="https://github.com/user-attachments/assets/202550a3-af69-49a6-bd30-ee37a28359b0" />

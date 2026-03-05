@@ -22,7 +22,7 @@
   
 <p align="center"> <img width="20" height="30" alt="image" src="https://github.com/user-attachments/assets/2681276a-425b-4aee-a013-15b5007c82f3" /> im very awkward and shy around new people, but despite this i will try my best to converse with you :'-) i apologise if my replies seem dry. if we get along well enough ill consider giving you my socials
 <p align="center"> if you make me feel uncomfortable i wont hesitate to block you. i block freely, i do not have a proper dni list, all i ask from you is to just be a decent person :-)
-  <p align="center"> https://remrums.straw.page <-- send me stuff here!
+
 <p align="center"><img width="630" height="30" alt="image" src="https://github.com/user-attachments/assets/44830060-8ae7-4510-9003-67e8574b86b4" />
 
 <img width="1000" height="4" alt="image" src="https://github.com/user-attachments/assets/e205af88-9fb8-4647-9869-a7ab07dca991" />

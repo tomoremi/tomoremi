@@ -9,7 +9,8 @@
 
 <img width="1000" height="4" alt="image" src="https://github.com/user-attachments/assets/79c6a17d-be51-480b-a09a-be8588588be5" />
 
-
+<p align="center"> hello! my name is remiel/seraphi!!!!!!!!!!!
+  
 <p align="center"> <img width="630" height="30" alt="image" src="https://github.com/user-attachments/assets/b78c998c-6ff3-4485-87ed-d0cffaef5e8c" />
 
 <p align="center"> <img width="20" height="30" alt="image" src="https://github.com/user-attachments/assets/2681276a-425b-4aee-a013-15b5007c82f3" /> ..i like alot of things, but i cant list all of them here. sorry!
@@ -30,4 +31,9 @@
 
 <img width="1000" height="4" alt="image" src="https://github.com/user-attachments/assets/e205af88-9fb8-4647-9869-a7ab07dca991" />
 
-<p align="center"> <img width="250" height="350" alt="image" src="https://github.com/user-attachments/assets/144eca80-b75d-4bf2-a28a-91e0abc40cec" />
+<p align="center"> <img width="200" height="350" alt="image" src="https://github.com/user-attachments/assets/144eca80-b75d-4bf2-a28a-91e0abc40cec" /> <img width="200" height="350" alt="image" src="https://github.com/user-attachments/assets/a005cc27-682f-4ab8-b44f-214fc82efc4b" /> <img width="200" height="350" alt="image" src="https://github.com/user-attachments/assets/87e9d6ee-71bf-4325-966e-b9015b674094" /> <img width="200" height="350" alt="image" src="https://github.com/user-attachments/assets/a39f23b0-f34a-40d8-b68a-374bd602f950" />
+
+
+
+
+

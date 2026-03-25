@@ -13,7 +13,9 @@
 <p align="center"> <img width="630" height="30" alt="image" src="https://github.com/user-attachments/assets/b78c998c-6ff3-4485-87ed-d0cffaef5e8c" />
 
 <p align="center"> <img width="20" height="30" alt="image" src="https://github.com/user-attachments/assets/2681276a-425b-4aee-a013-15b5007c82f3" /> ..i like alot of things, but i cant list all of them here. sorry!
-<p align="center"> MILGRAM (08) <img width="20" height="200" alt="image" src="https://64.media.tumblr.com/04f3b221c5956f11e45aa066a03392e7/b1b64738a833c00e-b9/s75x75_c1/aaf42ee9414f1fc790bac202380b5e07a54b3b3e.gifv" />, BanG Dream (MyGO) <img width="20" height="200" alt="image" src="https://64.media.tumblr.com/04f3b221c5956f11e45aa066a03392e7/b1b64738a833c00e-b9/s75x75_c1/aaf42ee9414f1fc790bac202380b5e07a54b3b3e.gifv" />, Dungeon Meshi, Dandys world, Cosmic Princess Kaguya, D4DJ, DDLC, SEWH, Nichijou, Girls Last Tour, Gachiakuta ++ more!
+<p align="center"> MILGRAM (08) <img width="20" height="200" alt="image" src="https://64.media.tumblr.com/04f3b221c5956f11e45aa066a03392e7/b1b64738a833c00e-b9/s75x75_c1/aaf42ee9414f1fc790bac202380b5e07a54b3b3e.gifv" />, BanG Dream (MyGO) <img width="20" height="200" alt="image" src="https://64.media.tumblr.com/04f3b221c5956f11e45aa066a03392e7/b1b64738a833c00e-b9/s75x75_c1/aaf42ee9414f1fc790bac202380b5e07a54b3b3e.gifv" />, Dungeon Meshi, Dandys world, Cosmic Princess Kaguya, D4DJ, DDLC, SEWH, Nichijou, Girls Last Tour, Gachiakuta ++ more! 
+
+<p align="center"> i am VERY fond of wlw ships, and i like reading yuri too 🤍
 <p align="center"><img width="630" height="30" alt="image" src="https://github.com/user-attachments/assets/44830060-8ae7-4510-9003-67e8574b86b4" />
 
 <img width="1000" height="4" alt="image" src="https://github.com/user-attachments/assets/e205af88-9fb8-4647-9869-a7ab07dca991" />

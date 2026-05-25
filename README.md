@@ -21,7 +21,7 @@
 
 <p align="center"> <img width="630" height="30" alt="image" src="https://github.com/user-attachments/assets/b78c998c-6ff3-4485-87ed-d0cffaef5e8c" />
   
-<p align="center"> <img width="20" height="30" alt="image" src="https://github.com/user-attachments/assets/2681276a-425b-4aee-a013-15b5007c82f3" /> im very awkward and shy around new people, but despite this i will try my best to converse with you :'-) i apologise if my replies seem dry. if we get along well enough ill consider giving you my socials
+<p align="center"> <img width="20" height="30" alt="image" src="https://github.com/user-attachments/assets/2681276a-425b-4aee-a013-15b5007c82f3" /> im very awkward and shy around new people, but despite this i will try my best to converse with you :'-) i apologise if my replies seem dry.
 <p align="center"> like 50% of the time ill be active on pt when im not busy irl with work and personal issues. i'm also offtab most of the time so i wont get back to you very quickly, sorry
 <p align="center"> if you make me feel uncomfortable i wont hesitate to block you. i block freely, i do not have a proper dni list, all i ask from you is to just be a decent person :-). if you're under 15 dni please, sorry (proshippers, lolicons/shotacons will get an immediate block)
   
